@@ -45,7 +45,7 @@ ChessBazaar is the world's leading manufacturer of premium wooden chess sets, bo
 ## 🤝 Connect With Us
 - 🌐 Website: [chessbazaar.com](https://www.chessbazaar.com)
 - 📧 Business: info@chessbazaar.com
-- 📱 WhatsApp: +91-9876543210
+- 📱 WhatsApp: +91-6284543565
 - 🏢 LinkedIn: [ChessBazaar](https://linkedin.com/company/chessbazaar)
 - 📘 Facebook: [@ChessBazaarOfficial](https://facebook.com/chessbazaarofficial)
 
